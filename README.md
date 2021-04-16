@@ -9,8 +9,3 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... deanhadzi82@gmail.com
 - ⚡ Fun fact: ... I LOVE to play boardgames!
-
-Introductory message that welcomes viewers to your page
-2-3 quick bullets or sentences that describe yourself: this can include passions, interests, expertise, and what you currently do
-Reference skills and expertise you have
-
